@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/779798385389076500/793794877724033025/Galaxy-4K.gif" />
+  <img src="https://media1.tenor.com/m/7X1_WpELnRkAAAAC/the-galaxy-is-mahdis.gif" />
 </p>
 
   <p align="center">
